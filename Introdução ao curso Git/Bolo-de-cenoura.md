@@ -15,15 +15,15 @@
 
 ## MODO DE PREPARO
 # MASSA
-Em um liquidificador, adicione a cenoura, os ovos e o óleo, depois misture.
+- Em um liquidificador, adicione a cenoura, os ovos e o óleo, depois misture.
 
-Acrescente o açúcar e bata novamente por 5 minutos.
+- Acrescente o açúcar e bata novamente por 5 minutos.
 
-Em uma tigela ou na batedeira, adicione a farinha de trigo e depois misture novamente.
+- Em uma tigela ou na batedeira, adicione a farinha de trigo e depois misture novamente.
 
-Acrescente o fermento e misture lentamente com uma colher.
+- Acrescente o fermento e misture lentamente com uma colher.
 
-Asse em um forno preaquecido a 180° C por aproximadamente 40 minutos.
+- Asse em um forno preaquecido a 180° C por aproximadamente 40 minutos.
 
 ## COBERTURA
 - Despeje em uma tigela a manteiga, o chocolate em pó, o açúcar e o leite, depois misture.
